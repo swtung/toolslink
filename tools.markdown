@@ -17,5 +17,8 @@ FB粉絲頁：[http://fb.me/tungshangwei](http://fb.me/tungshangwei)
 免費圖庫：[pixabay.com](http://www.pixabay.com)
 購物車：[gospaces.tw](https://gospaces.tw)
 速成美工：[fotojet.com](https://www.fotojet.com)
+廣告頁：[strikingly.com](https://www.strikingly.com)
+線上客服：[zopim.com](https://www.zopim.com)
+
 
 
