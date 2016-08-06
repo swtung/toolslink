@@ -39,5 +39,12 @@ Weebly：[weebly.com](https://www.weebly.com)
 **P37**
 Strikingly：[strikingly.com](https://www.strikingly.com)
 
+**P45**
+[Shopline](https://shopline.tw)
+[meepshop](https://www.meepshop.com)
+[Easystore](https://www.easystore.co)
+[ecwid](https://www.ecwid.com)
+[gospace](https://gospaces.tw)
+
 
 
