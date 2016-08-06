@@ -84,4 +84,25 @@ www.getsitecontrol.com　
 www.addthis.com　
 
 
+**P62**
+FB留言抽籤小幫手
+
+
+**P63**
+FB線上客服 Speaklyn
+
+**P64**
+zopim線上客服
+
+**P66**
+電腦版
+
+
+**P67**
+Google Analytics流量入析器
+
+
+**P73**
+
+
 
