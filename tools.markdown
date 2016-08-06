@@ -30,6 +30,14 @@ Strikingly：[strikingly.com](https://www.strikingly.com)
 **P16**
 Godaddy:[tw.godaddy.com](https://tw.godaddy.com)
 
+**P18**
+[http://www.webtech.com.tw](http://www.webtech.com.tw )
+
+**P31**
+Weebly：[weebly.com](https://www.weebly.com)
+
+**P37**
+Strikingly：[strikingly.com](https://www.strikingly.com)
 
 
 
