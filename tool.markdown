@@ -46,7 +46,42 @@ Strikingly：[strikingly.com](https://www.strikingly.com)
 [gospace](https://gospaces.tw)
 
 **P46**
+歐付寶
+智付寶
+PAYPAL
+微信支付
 
+**P48**
+歐付寶一鍵生成:
+PAYPAL一鍵生成:
+
+**P50**
+Google表單
+
+
+**P51**
+BOX雲端空間
+
+
+**P52**
+QuickMark
+
+**P53**
+QRHacker
+
+**P55**
+Slideshare
+
+
+**P56**
+Slideshare的demo頁面
+
+
+**P61**
+zh.sharebutton.net　
+www.bshare.cn　
+www.getsitecontrol.com　
+www.addthis.com　
 
 
 
