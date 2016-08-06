@@ -25,7 +25,10 @@ FB粉絲頁：[http://fb.me/tungshangwei](http://fb.me/tungshangwei)
 Weebly：[weebly.com](https://www.weebly.com)
 
 **P11**
-Strikingly：[strikingly.com]https://www.strikingly.com)
+Strikingly：[strikingly.com](https://www.strikingly.com)
+
+**P16**
+Godaddy:[tw.godaddy.com](https://tw.godaddy.com)
 
 
 
