@@ -1,6 +1,7 @@
 ---
 title: "數位工具課程連結"
 date: 2016-08-06 14:01:00 +08:00
+published: false
 Field name: 
 ---
 
@@ -19,6 +20,13 @@ FB粉絲頁：[http://fb.me/tungshangwei](http://fb.me/tungshangwei)
 速成美工：[fotojet.com](https://www.fotojet.com)
 廣告頁：[strikingly.com](https://www.strikingly.com)
 線上客服：[zopim.com](https://www.zopim.com)
+
+**P9**
+Weebly：[weebly.com](https://www.weebly.com)
+
+**P11**
+Strikingly：[strikingly.com]https://www.strikingly.com)
+
 
 
 
